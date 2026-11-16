@@ -1,1 +1,0 @@
-# ekstraksi_fitur_warna
